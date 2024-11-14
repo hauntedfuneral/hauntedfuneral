@@ -1,5 +1,5 @@
 #
-✦ ﹒﹒*kargo / lancelot (close friends call me vincent.)* 
+✦ ﹒﹒*kargo or lancelot, close friends call me vincent.* 
 
 ★ ﹒﹒*i go by they ; them (he, him aswell) and im a quiet and introverted person, i may be offtab half of the time if im not with any friends but you're free to hide behind me (c+h) or sit beside me!, please do know that i will not talk much unless your someone familiar.* 
 
